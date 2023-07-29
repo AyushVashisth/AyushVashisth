@@ -1,3 +1,4 @@
+![38](https://github.com/AyushVashisth/AyushVashisth/assets/133607161/ba3f9efc-54b8-43ce-91aa-cb424d008469)
 
 👋 Hello, I'm Ayush!
 
