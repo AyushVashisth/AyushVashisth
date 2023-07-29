@@ -1,4 +1,4 @@
-<img width="600" alt="DALL·E 2023-07-30 01 42 49 - brown table with a MacBook, Iphone, round specs, papers on it working with different visualizations on laptop" src="https://github.com/AyushVashisth/AyushVashisth/assets/133607161/525e8121-7e17-43f6-a201-239915075f74">
+<img width="800" alt="DALL·E 2023-07-30 01 42 49 - brown table with a MacBook, Iphone, round specs, papers on it working with different visualizations on laptop" src="https://github.com/AyushVashisth/AyushVashisth/assets/133607161/525e8121-7e17-43f6-a201-239915075f74">
 
 
 👋 Hello, I'm Ayush!
