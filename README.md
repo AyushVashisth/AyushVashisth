@@ -17,4 +17,4 @@ I enjoy tackling challenging business problems and collaborating with cross-func
 Constantly seeking new opportunities to learn and grow, I stay updated with the latest trends in data analytics and visualization to deliver the best results.
 
 **🤝 Let's Connect:**
-I'm always open to discussing data-related projects, ideas, and opportunities. Feel free to reach out to me via Email or connect with me on LinkedIn.
+I'm always open to discussing data-related projects, ideas, and opportunities. Feel free to reach out to me via [Email](https://ayushvst7@gmail.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/ayush-vashisth-9399741a0/).
