@@ -1,4 +1,4 @@
-![Untitled design](https://github.com/AyushVashisth/AyushVashisth/assets/133607161/84f7de33-5363-433f-a7c8-11782e0796ac)
+![Untitled design (2)](https://github.com/AyushVashisth/AyushVashisth/assets/133607161/c4fd38ed-4a8d-4429-b19c-5ace30208391)
 👋 Hello, I'm Ayush!
 
 **📊 Data Analysis | 🎯 SQL | 📈 Power BI | 📊 Looker Studio**
